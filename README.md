@@ -1,0 +1,2 @@
+# CSI
+ providing Total Engineering and IT solutions to the organizations world over by understanding their needs. With a proven Global Delivery Model, Credit Systems India helped customers achieve their business goals by translating critical business objectives into custom technology solutions, end to end. Our customer centric, flexible engagement models and our global presence ensure that our customers get cost advantages offered by an offshore outsourcing partner along with the benefits of local presence.
